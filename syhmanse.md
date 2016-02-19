@@ -1,2 +1,2 @@
 # Ramen
-Boil water, put 2 ramens and 2 eggs, enjoy
+Boil water, put 2 ramens, 2 spams and 5 mandus , enjoy
